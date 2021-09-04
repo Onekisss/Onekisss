@@ -47,7 +47,7 @@
 <img src="https://www.img.in.th/images/610721641f0c6006768c23869f82c6f3.jpg" alt="610721641f0c6006768c23869f82c6f3.jpg" border="0">
 สามารถคลิกปุ่มเปลียนภาษาเพื่อดูข้อมูลการ์ดภาษาไทยและอังกฤษได้<br /> <br />
 
-หากติดหรือสงสัยสามารถสอบถามได้ที่<br /> <br />
+หากติดหรือสงสัยจุดใดสามารถสอบถามเพิ่มเติมได้ที่<br /> <br />
 Line : first2278<br /> <br />
 Discord : Onekisss#9058<br /> <br />
 FB : Thanachit Kiewchaum<br /> <br />
